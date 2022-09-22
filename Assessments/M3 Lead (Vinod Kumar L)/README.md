@@ -1,3 +1,3 @@
-# MySelf [Vinod Kuamr](https://github.com/iamvk1437k)
+# MySelf [Vinod Kumar](https://github.com/iamvk1437k)
 
 
